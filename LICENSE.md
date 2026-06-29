@@ -1,4 +1,4 @@
-#  
+#  Experience brookhaven rp like never before with updated Script for brookhaven rp, the #1 Script. Includes invisibility and anti-ban for unbeatable
 
 
 
